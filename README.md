@@ -1,2 +1,2 @@
 # hack-_the-_stack
-<img src="https://mail.google.com/mail/u/0?ui=2&ik=e44bb49cff&attid=0.1&permmsgid=msg-f:1857483635192975766&th=19c71b865bc75196&view=att&disp=safe&realattid=f_mlsa827o0&zw">
+<img src="![WhatsApp Image 2026-02-17 at 10 16 58 PM](https://github.com/user-attachments/assets/8e77382a-885d-41a8-9278-644de3a7c3c8)">
